@@ -1,29 +1,29 @@
-##One Art##
+## One Art ##
 
-BY ELIZABETH BISHOP
-The art of *losing* isn’t hard to master;
-so many things seem filled with the intent
-to be lost that their *loss* is no disaster.
+BY ELIZABETH BISHOP<br>
+The art of *losing* isn’t hard to master;<br>
+so many things seem filled with the intent<br>
+to be lost that their *loss* is no disaster.<br>
 
-*Lose something every day. Accept the fluster
-of lost door keys, the hour badly spent.
->The art of *losing isn’t hard to master.
+*Lose* something every day. Accept the fluster<br>
+of lost door keys, the hour badly spent.<br>
+>The art of *losing* isn’t hard to master.<br>
 
-Then practice *losing farther, *losing faster:
-places, and names, and where it was you meant
-to travel. None of these will bring disaster.
+Then practice *losing* farther, *losing* faster:<br>
+places, and names, and where it was you meant<br>
+to travel. None of these will bring disaster.<br>
 
-I *lost my mother’s watch. And look! my last, or
-next-to-last, of three loved houses went.
-The art of *losing isn’t hard to master.
+I *lost* my mother’s watch. And look! my last, or<br>
+next-to-last, of three loved houses went.<br>
+The art of *losing* isn’t hard to master.<br>
 
-I lost two cities, lovely ones. And, vaster,
-some realms I owned, two rivers, a continent.
-I miss them, but it wasn’t a disaster.
+I lost two cities, lovely ones. And, vaster,<br>
+some realms I owned, two rivers, a continent.<br>
+I miss them, but it wasn’t a disaster.<br>
 
-—Even *losing you (the joking voice, a gesture
-I love) I shan’t have lied. It’s evident
-the art of *losing’s not too hard to master
-though it may look like (Write it!) like disaster.
+—Even *losing* you (the joking voice, a gesture<br>
+I love) I shan’t have lied. It’s evident<br>
+the art of *losing’s* not too hard to master<br>
+though it may look like (Write it!) like disaster.<br>
 
 [https://www.poetryfoundation.org/poems/47536/one-art]
