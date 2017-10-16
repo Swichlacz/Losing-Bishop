@@ -1,4 +1,4 @@
-#One Art
+##One Art
 BY ELIZABETH BISHOP
 The art of *losing isn’t hard to master;
 so many things seem filled with the intent
@@ -6,7 +6,7 @@ to be lost that their *loss is no disaster.
 
 *Lose something every day. Accept the fluster
 of lost door keys, the hour badly spent.
-The art of *losing isn’t hard to master.
+>The art of *losing isn’t hard to master.
 
 Then practice *losing farther, *losing faster:
 places, and names, and where it was you meant
@@ -24,3 +24,5 @@ I miss them, but it wasn’t a disaster.
 I love) I shan’t have lied. It’s evident
 the art of *losing’s not too hard to master
 though it may look like (Write it!) like disaster.
+
+[https://www.poetryfoundation.org/poems/47536/one-art]
